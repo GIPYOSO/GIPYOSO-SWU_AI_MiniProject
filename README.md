@@ -1,0 +1,1 @@
+# GIPYOSO-SWU_AI_MiniProject
